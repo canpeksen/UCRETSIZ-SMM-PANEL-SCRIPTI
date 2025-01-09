@@ -1,2 +1,2 @@
 # UCRETSIZ-SMM-PANEL-SCRIPTI
-ÜCRETSİZ SMM PANEL SCRİPTİ
+<a href="https://ucretsizscriptler.com.tr">ÜCRETSİZ SMM PANEL SCRİPTİ</a>
